@@ -1,2 +1,2 @@
 # cool-world
-newer computer person
+el psy congroo
